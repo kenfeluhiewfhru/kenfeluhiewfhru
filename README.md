@@ -8,6 +8,6 @@ ultilizo este espaço para me orgaizar e compartilhar meus projetos finalizados
 
 vaneca.santos@escola.pr.gov.br
 
-@wxp.nesa
+@wxp.neca
 
 ![](https://media.tenor.com/5OLMdrjEUGcAAAAi/deku-hype-hype.gif)
